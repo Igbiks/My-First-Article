@@ -1,5 +1,3 @@
-# My-First-Article
-
 # Web-3 and Environmental Sustainability: Myths and Facts
 
 
